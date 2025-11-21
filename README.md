@@ -69,6 +69,8 @@
 ---
 
 ## Socials
+- @OukaNeko  
+- @OukaNekoUwU  
 - @NekoOuka  
 - @NekoOukaUwU  
 
