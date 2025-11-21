@@ -1,5 +1,7 @@
 # 桜花猫娘ちゃん Ouka Neko-chan 🌸🐱 おうかねこちゃん
 
+![](AiImages\ChatGPT%20Image%20Nov%2017%2C%202025%2C%2002_25_08%20AM.png?raw=true)
+
 ---
 
 ## English Romaji
